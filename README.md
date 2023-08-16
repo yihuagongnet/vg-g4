@@ -13,6 +13,8 @@ https://zhongtongshipin.com  (被墙，国内访问需要梯子）
 ```
 # vg-g4  ztsp中同视频最新域名网址：
 
+https://ztsp.xyz （2023.8.16更新）
+
 https://ztsp.lat
 
 https://ztsp.mom
